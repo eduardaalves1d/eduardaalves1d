@@ -3,7 +3,7 @@
 - 💞️ meu sonho é seu advogada
 - 📫 nas minhas horas vagas eu gosto de fica de boa 
 - 😄 dwdajk_00
-- ⚡ ![](https://tenor.com/pt-BR/view/kikimogi-kiki-frio-temperatura-neve-gif-22033676)
+- ⚡ ![](https://media1.tenor.com/m/aw-2ziyepAoAAAAC/rachael-gunn-raygun.gif)
 - ✨
 <!---
 eduardaalves1d/eduardaalves1d is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
